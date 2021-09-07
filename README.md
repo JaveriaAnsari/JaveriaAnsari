@@ -10,7 +10,7 @@
 </p> -->
 <br><br>
 
-## <h1>Assalam O Alaikum! I'm "[JAVERIA ANSARI](https://lnkd.in/e9Tk5UrJ)"</h1>
+## <h1>Assalam O Alaikum! I'm "[JAVERIA ANSARI](https://lnkd.in/e3UDC6MY)"</h1>
 <hr>
 <h3 align="center">
   A Passionate Developer from Pakistan
