@@ -10,16 +10,16 @@
 </p> -->
 <br><br>
 
-## <h1>Assalam O Alaikum! I'm "[JAVERIA ANSARI](https://lnkd.in/e3UDC6MY)"</h1>
+## <h1>Assalam O Alaikum! I'm "[JAVERIA KALSOOM](https://lnkd.in/e3UDC6MY)"</h1>
 <hr>
 <h3 align="center">
   A Passionate Developer from Pakistan
 </h3>
 
 
-[![Facebook Badge](https://img.shields.io/badge/-@JaveriaAnsari-1ca0f1?style=flat-square&labelColor=1ca0f1&logo=facebook&logoColor=white&link=https://facebook.com/maddhruv)](https://facebook.com/theatifwaheed)
+[![Facebook Badge](https://img.shields.io/badge/-@JaveriaAnsari-1ca0f1?style=flat-square&labelColor=1ca0f1&logo=facebook&logoColor=white&link=https://www.facebook.com/mah.jabeen.39589149)](https://www.facebook.com/mah.jabeen.39589149)
 [![YouTube Badge](https://img.shields.io/badge/-@JaveriaAnsari-c4302b?style=flat-square&labelColor=c4302b&logo=youtube&logoColor=white&link=https://www.youtube.com/thetechrie)](https://www.youtube.com/thetechrie) 
-[![Twitter Badge](https://img.shields.io/badge/-@JaveriaAnsari-1ca0f1?style=flat-square&labelColor=1ca0f1&logo=twitter&logoColor=white&link=https://twitter.com/maddhruv)](https://twitter.com/theatifwaheed) [![Instagram Badge](https://img.shields.io/badge/-@JaveriaAnsari-F44747?style=flat-square&labelColor=F44747&logo=instagram&logoColor=white&link=https://instagram.com/theatifwaheed)](https://instagram.com/theatifwaheed) 
+[![Twitter Badge](https://img.shields.io/badge/-@JaveriaAnsari-1ca0f1?style=flat-square&labelColor=1ca0f1&logo=twitter&logoColor=white&link=https://twitter.com/JAnsari234?s=09)](https://twitter.com/JAnsari234?s=09) [![Instagram Badge](https://img.shields.io/badge/-@JaveriaAnsari-F44747?style=flat-square&labelColor=F44747&logo=instagram&logoColor=white&link=https://instagram.com/theatifwaheed)](https://instagram.com/i_javeriaansari?utm_medium=copy_link) 
 [![Linkedin Badge](https://img.shields.io/badge/-@JaveriaAnsari-blue?style=flat-square&logo=Linkedin&logoColor=white&link=https://www.linkedin.com/in/theatifwaheed/)](https://www.linkedin.com/in/theatifwaheed/)
 [![Gmail Badge](https://img.shields.io/badge/-Javeriakalsoom63@gmail.com-c14438?style=flat-square&logo=Gmail&logoColor=white&link=mailto:Javeriakalsoom63@gmail.com)](mailto:Javeriakalsoom63@gmail.com)
 
@@ -64,13 +64,13 @@
 </details> 
 
 
-**JaveriaAnsari/JaveriaAnsari** is a LOVE 🫀 ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**JaveriaAnsari/JaveriaAnsari** I LOVE 🫀 You ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
+- 👯 I’m looking to collaborate on ... You're beautiful. I always wanted to let you know about this.
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about ...
 - 📫 How to reach me: ...
