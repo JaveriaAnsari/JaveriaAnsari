@@ -64,13 +64,19 @@
 </details> 
 
 
-**JaveriaAnsari/JaveriaAnsari** I LOVE 🫀 You ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**theatifwaheed/theatifwaheed** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ... You're beautiful. I always wanted to let you know about this.
+- 👯 I’m looking to collaborate on ...
+I LOVE JAVERIA KALSOOM. She's beautiful. 
+I always wanted to let her know about this  but I cant.
+I always wanted to get closer to her but situation doesn't help me.
+She is beautiful and sexy girl.
+I always wanted to kiss her as she is very beautiful.
+She is supportive and Lovely. 
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about ...
 - 📫 How to reach me: ...
